@@ -4,7 +4,7 @@ I am a budding pedologist and soil biogeochemist who also has a broad interest i
 
 ![959ae800fa0441f475b437c62e26247](https://github.com/user-attachments/assets/510907fe-c4bc-48b9-b93f-f967b0d00dde)
 
-Me augering soils in a coastal forest in South Carolina, USA, cr: Dan Richter, Professor of Soils at Duke University.
+(Me augering soils in a coastal forest in South Carolina, USA, cr: Dan Richter, Professor of Soils at Duke University.)
 
 Please see my full research proile at Google Scholar: https://scholar.google.com/citations?user=WdRWWUkAAAAJ&hl=en
 
