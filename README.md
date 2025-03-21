@@ -1,4 +1,4 @@
-## Hi world 😎
+## Hello world 😎
 
 I am a budding pedologist and soil biogeochemist who also has a broad interest in Earth system sciences. I got my B.S. in Earth and atmospheric sciences from Cornell University in 2023 and am currently pursuing my Ph.D. at Duke University's Nicholas School of the Environment.
 
